@@ -1,1 +1,0 @@
-# goboras.github.io
